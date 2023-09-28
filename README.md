@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @yeeter-365
-- 👀 I’m interested in marvel, memes, vines and all that Gen z Shiz. Yeet!
-- 🌱 I’m currently learning Python, How to make planes, rocket fusion reactors and more memes
+- 👀 I’m interested in Nothing
+- 🌱 I’m currently learning Python, How to make planes, rocket fusion reactors
 - 💞️ I’m looking to collaborate on ✨ N O T H I N G ✨
 - 📫 How to reach me__Idk, my username?
 
